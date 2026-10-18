@@ -40,7 +40,7 @@ Links
 
 💼 LinkedIn: linkedin.com/in/isaac-naylor-68603930a
 
-🎮 Itch.io: https://shyirasky.itch.io
+🎮 Itch.io: https://dotentity1.itch.io
 
 
 <!---
