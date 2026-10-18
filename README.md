@@ -1,4 +1,4 @@
--👋 Hi, I'm Isaac (Shyirasky)
+-👋 Hi, I'm Isaac 
 
 -🎓 Game Design student at Robert Gordon University with a background in Computer Science from UHI Moray.
 
